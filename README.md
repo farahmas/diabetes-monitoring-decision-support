@@ -1,1 +1,1 @@
-**Team**: Farahnozkhon Dilovarovna Masumova & Hayrunisa Korkulu
+**Team:** Farahnozkhon Dilovarovna Masumova & Hayrunisa Korkulu
